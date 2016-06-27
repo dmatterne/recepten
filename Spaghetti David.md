@@ -1,6 +1,6 @@
 # Spaghetti
 
-Voor 4 personen
+Voor 4 personen behalve david matterne
 
 ## Benodigdheden
 
