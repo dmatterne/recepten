@@ -1,6 +1,9 @@
 # Spaghetti
 
-Voor 4 personen behalve david matterne
+
+Voor 4 personen behalve david matterne en Geert Verstraete.
+Daenarys Targaryen Dies
+
 
 ## Benodigdheden
 
